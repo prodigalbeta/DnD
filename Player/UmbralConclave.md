@@ -88,7 +88,7 @@
 - We go back to the hotel, I take my sleep juice and KTFO
 - I have a dream, somewhere I've never been
     - very fancy ballroom
-    - some kind of waltz gracefull but unnerving
+    - some kind of waltz graceful but unnerving
     - I feel totally out of place
     - I see feminine hands when I look down
     - I see a gentleman but I am faceblind to him
@@ -99,3 +99,6 @@
 - Orchid takes us through the back rooms
 - Tells us to meet them at the Smoked Lantern at a blacksmiths shop
 - The room begins to shift??? surrounded by all encompasing darkness, footsteps all around us
+
+# Session 13
+
