@@ -28,7 +28,7 @@
 - Adalaide is researching the magic well
     - Finds an article about a wraith that was an omen 
     - Parties used to go searching for it but could never find it 
-    - 60 years ago, 30 years before the fire
+    - 60 years ago, 30 years before the first
     - Gilain Soleis created The Eternal Watcher, a demigod that existed on the material plane
         - tasked with maintaining order
         - corruped by the sins of humans
@@ -98,7 +98,19 @@
 - We go meet our contact for the Umbral Enclave at the museum, The Orchid
 - Orchid takes us through the back rooms
 - Tells us to meet them at the Smoked Lantern at a blacksmiths shop
-- The room begins to shift??? surrounded by all encompasing darkness, footsteps all around us
+- The room begins to shift??? surrounded by all encompassing darkness, footsteps all around us
 
 # Session 13
-
+- Combat!
+    - 1 dwarf, 1 half-elf, 1 figure in black (warlock)
+        - Dwarf killed by Chester
+        - Half Elf killed by Chester
+        - Warlock killed by Chester
+    - wearing a wine red waist coat with a "C" monogram
+        - "C": arrow pointing away from it, for the Cartwright Family
+            - Their warlock patron is an archfey named Myrdynn
+- Guards are summoned after Chester's carnage
+- Chester has another sin eater vision
+    - The mirror version of me does an evil laugh and then the mirror shattered
+- Chester feels closer and closer to the darkeness inside him
+    
