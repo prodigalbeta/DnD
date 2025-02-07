@@ -113,4 +113,39 @@
 - Chester has another sin eater vision
     - The mirror version of me does an evil laugh and then the mirror shattered
 - Chester feels closer and closer to the darkeness inside him
-    
+
+# Session 14
+- Lorenzo casts invisibility on him and Adalaide
+- Chester crashes out
+- The Orchid comes to his sensess and hollers at Chester to run
+    - Chester snaps out of it
+- Orchid pulls out a key revealing a hidden passage
+- Lorenzo casts arcane lock on the door
+- Chester goes back to his apartment
+    - Take a path through the garden to avoid the guards
+    - Chester blends in with a crowd of Tieflings a la AssCreed 2
+    - Chester finds some powdered silver, enough to cast the spell one time
+    - He grabs a 40 and takes a hot bath
+    - He can hear the magehounds outside
+- Lorenzo and Adalaide go to a cafe and so some shopping
+    - They come across a roadblock with city guards
+    - City guard Darrin tells them about our fight in the museum
+    - They find a cafe to have tea in
+    - Patrons of the seem intrigued and shocked that a Cartwright was killed but not upset
+    - City Guard hounds are sniffing but their eyes are completely black
+- **Gerwyn** was the Cartwright that I killed
+- Lorenzo and Adalaide ask the waiter in the cafe where to find a "reflective surface coated with obsidian glass"
+    - They go antiquing
+        - The Midnight Reliquary (an oddities store that is only open at night)
+        - Also an antique store
+            - They start here
+            - find something that can be obsidian
+- Chester whips up a batch of 3 doses of Somnium
+    - doesn't smell like anything
+    - imagine it doesn't taste very good
+    - stores all three doses in a secure chest for the extra volitile shit in his lab
+- Heavy knocking at Chester's front door
+    - Guards with hounds at the door
+    - Gilfoyle is the name of the guard
+    - Chester intimidates them away successfully
+    - Adalaide does not persuade them
