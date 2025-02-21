@@ -149,3 +149,47 @@
     - Gilfoyle is the name of the guard
     - Chester intimidates them away successfully
     - Adalaide does not persuade them
+
+# Session 15
+- Chester's kind of face is plastered on wanted posters through the city
+- Lorenzo and Adalaide go back to the Inn
+    - Both of them go back to sleep
+- Chester takes a dose of Somnium intending to dream about sin eaters outside of the context of the vision that hes having
+    - comes to on the ground in the dream, in a ruin
+    - It's an old chapel
+        - Kyassian Chapel
+        - Large basalt column
+    - Can hear the river Morne
+    - a version of Mornhabain if it was never built
+    - Detect the remnants of a failed ritual to push something out of the world
+    - A page of something stuck to Chester's leg, something from a hymn book
+        - Part of the hymn mentions the old vilage before Mornhabain
+    - A small boat approaches on the river with no one in it
+    - The river doesn't feel cold like it should be
+    - hear a voice in his head "Would you like to see?"
+        - eventually the river spills out into a delta into the sea
+        - There's a house on the beach that the lantern goes to
+        - People live in this house
+        - Signs of a struggle in the house
+        - I see the shadowed shape of a man
+        - A little red-haired girl with green eyes
+    - Seems to be related to a real place down the river
+- Lorenzo dreams about an ancient library
+    - Sees a blue light off in the distance and goes toward it
+        - It's Dinir??
+             - He plops a tome down in front of Lorenzo
+             - "Something has been rewritten"
+             - "Not all ink may be erased"
+    - He wakes up, and sees a green haze/light fly off in the distance
+- Lorenzo barges in to Adalaide's room and shares his dream with her
+- We all meet up at Chester's and relay our dreams to each other
+- We decide to go to the smoked lantern
+    - spill the beans that I killed Gerwyn to Lewis who's maning the front desk at the Smoked Lantern
+    - name drop the Orchid to get in with the Umbral Conclave
+    - we meet up with Bradford
+    - We explain everything to him and we're all very confused
+    - He tells us the story of the Veiled Guard
+        - Tormund is the name that comes up everytime
+            - created the sin eater ritual??? to save his people
+            - Made a pact with something called the keeper? Possibly Dinir
+            - "The Child of the Veiled Name" centeries before the debt would be realized
