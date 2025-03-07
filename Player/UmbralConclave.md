@@ -193,3 +193,24 @@
             - created the sin eater ritual??? to save his people
             - Made a pact with something called the keeper? Possibly Dinir
             - "The Child of the Veiled Name" centeries before the debt would be realized
+
+# Session 16
+- Lorenzo tries to kick us out while he does the ritual
+- Adalaide's patron shows up and creeps the whole party out
+- we do the ritual and shit happens
+    - lorenzo and adalaide see a burning version of Mornhabain in the future
+    - shit is so fucked
+    - Lorenzo thinks it's hell, Adalaide hurts his feelings
+    - Chester is standing on top of a tower in the city
+        - holding a long dagger in his hand 
+        - hands are bandaged
+        - blood pooling at his feet
+        - chester sprints down the tower and meets up with the party
+        - Lorenzo's hand is severed???
+        - Chester's hand has been replaced with Lorenzo's hand
+            - Lorenzo thrusts the blade into his own chest
+            - The mirror shatters and we're back in the chamber out of the vision
+        - A sin eater appears??? and we have to fight it??
+        - lorenzo turns into red mist, adalaide and chester are down, TPK???
+        - fucked
+        - dude took Lorenzo's hand and peaced the fuck out?
